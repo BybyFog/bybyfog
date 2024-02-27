@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there :dizzy: :blush:
  
  :star: Me chamo Gabrielly, mas vocês podem me chamar de Gaby, se desejarem :star2:
  
