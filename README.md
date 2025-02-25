@@ -2,7 +2,7 @@
  
  :star: Me chamo Gabrielly, mas vocês podem me chamar de Gaby, se desejarem :star2:
  
- :star: tenho 23 aninhos, e sou completamente apaixonada por livros e, atualmente descobri o amor pelos códigos :two_hearts: 
+ :star: tenho 24 aninhos, e sou completamente apaixonada por livros e, atualmente descobri o amor pelos códigos :two_hearts: 
  
  :star: Moro atualmente na região dos lagos :sunglasses:
 
